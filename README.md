@@ -1,4 +1,4 @@
-![visitors](https://page-views.glitch.me/badge?page_id=SuryaSachan.SuryaSachan)
+
 ### Hi there 👋
 <strong>I am Surya<strong/>
   
